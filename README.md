@@ -28,7 +28,7 @@ I’m always open to collaborating on:
 ## 📫 How to Reach Me
 - GitHub: [G30TR1X](https://github.com/G30TR1X)
 - Email: [gavriel10donovan@gmail.com](mailto:gavriel10donovan@gmail.com)
-- LinkedIn: [Your LinkedIn Profile](#)
+- Instagram: [g30tr1x](https://www.instagram.com/g30tr1x/)
 
 ## 🚀 Fun Facts
 - I love exploring new tech stacks and solving complex problems.
