@@ -37,3 +37,6 @@ I’m always open to collaborating on:
 ---
 
 ✨ *“Code is like humor. When you have to explain it, it’s bad.”* ✨
+
+nothing to see here:
+[nothing](https://bit.ly/DI503)
